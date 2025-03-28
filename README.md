@@ -1,0 +1,1 @@
+# Verbosidadj_activity
